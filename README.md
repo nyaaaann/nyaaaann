@@ -2,4 +2,6 @@
 
 revamping this :-3 dearsantaaa u will be missed. . . . IM STILL HIM !
 
+do not interact / touch unless friend (on ponytown)
+
 sign my [ata](https://raiders.atabook.org/)
